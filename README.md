@@ -13,4 +13,13 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->  
+## My work    
+i currently work on analysing bioinformatics of retina tissues.
+## My life
+i like to play badminton and lift weight!
+## My dream
+i want to make the world a better place!
+## My idols
+MICHAEL JACKSON!
+LESLIE CHEUNG!
